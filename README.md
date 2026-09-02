@@ -24,7 +24,7 @@ Open to Software | AI | Analyst Roles
 
 <div align="center">
 
-## A Little bit about me
+## A little bit about me
 
 </div>
 
